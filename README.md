@@ -1,5 +1,5 @@
-### WONDERERAS
-# We Are Creating teh Most Intellegent and powerful being
+# WONDERERAS
+## We Are Creating teh Most Intellegent and powerful being
 
 
 - 👋 Hi, I’m @Wondereras
