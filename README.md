@@ -1,3 +1,7 @@
+###WONDERERAS
+-- We Are Creating teh Most Intellegent and powerful being
+
+
 - 👋 Hi, I’m @Wondereras
 - 👀 I’m planning to design a most intellegent "robot", or more accurately,'the most power being"...
 - 🌱 Let's give this most power being a name: Wondereras, and we may worship as the God...
